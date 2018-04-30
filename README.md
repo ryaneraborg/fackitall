@@ -1,0 +1,2 @@
+# fackitall
+ihateall
